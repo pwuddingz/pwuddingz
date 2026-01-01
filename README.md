@@ -13,14 +13,10 @@
   <img src="https://i.postimg.cc/G2KdtwW0/tumblr-801a08572c67f2510c1770886aa6ca16-77dba485-400.png" width="300">
 </p>
 
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=315j35fmndpt53p3qvqj63czfcwi&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=ffd1e5&bar_color_cover=false" />
-  </a>
-</p>
+
 
 <p align="center">
-  <img src="https://i.postimg.cc/tgPQQ83t/attachment.gif" width="300">
+  <img src="https://i.ibb.co/1JT0c3ty/okkk.gif" width="200">
 </p>
 
 <p align="center">
@@ -29,4 +25,9 @@
   <img src="https://i.postimg.cc/vm89pdwm/tumblr-8f004f284165dcc33c596a90f55ddcff-3646093f-250.gif" width="100">
     <img src="https://i.postimg.cc/3RdGxCwV/tumblr-e2edfb8de49531872fae2f3cbabe4074-dd1b31c6-250.gif" width="100">
 
+</p>
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=315j35fmndpt53p3qvqj63czfcwi&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=ffd1e5&bar_color_cover=false" />
+  </a>
 </p>
