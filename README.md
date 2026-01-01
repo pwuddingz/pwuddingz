@@ -18,3 +18,15 @@
     <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=315j35fmndpt53p3qvqj63czfcwi&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&bar_color=ffd1e5&bar_color_cover=false" />
   </a>
 </p>
+
+<p align="center">
+  <img src="https://i.postimg.cc/tgPQQ83t/attachment.gif" width="300">
+</p>
+
+<p align="center">
+  <img src="https://i.postimg.cc/SsJ9x7KH/tumblr-6873e74c744bf22974dc0d4875f4c07d-e809ea4e-250.gif" width="100">
+   <img src="https://i.postimg.cc/7LB74QqR/tumblr-89027fe8535d367207b5fd075473baad-fce13872-250.gif" width="100">
+  <img src="https://i.postimg.cc/vm89pdwm/tumblr-8f004f284165dcc33c596a90f55ddcff-3646093f-250.gif" width="100">
+    <img src="https://i.postimg.cc/3RdGxCwV/tumblr-e2edfb8de49531872fae2f3cbabe4074-dd1b31c6-250.gif" width="100">
+
+</p>
