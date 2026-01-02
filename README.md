@@ -19,6 +19,8 @@
   <img src="https://i.ibb.co/1JT0c3ty/okkk.gif" width="200">
 </p>
 
+<div align="center">──── ୨୧ ────</div>
+
 <p align="center">
   <img src="https://i.postimg.cc/SsJ9x7KH/tumblr-6873e74c744bf22974dc0d4875f4c07d-e809ea4e-250.gif" width="100">
    <img src="https://i.postimg.cc/7LB74QqR/tumblr-89027fe8535d367207b5fd075473baad-fce13872-250.gif" width="100">
