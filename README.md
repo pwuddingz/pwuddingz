@@ -4,7 +4,7 @@
   <img src="https://i.postimg.cc/MHt267jz/artful-artful-die-of-death.gif">
 </p>
 
-<div align="center">helo im pwu... i love artful if you couldnt tell👀. im gonna make a strawpage dedicated to him soon!</div>
+<div align="center">helo im pwu... i love artful if you couldnt tell👀</div>
 <div align="center">c+h (´◡`) dod fans int....!!!dni if proship!!!</div>
 ㅤㅤ
 <div align="center">୨୧</div>
