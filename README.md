@@ -4,8 +4,9 @@
   <img src="https://i.postimg.cc/MHt267jz/artful-artful-die-of-death.gif">
 </p>
 
-<div align="center">helo im pwu... i love artful if you couldnt tell👀</div>
-<div align="center">c+h (´◡`) dod fans int....!!!dni if proship!!!</div>
+<div align="center">pwu / lizzy</div>
+<div align="center">yumeship w artful, sharing ♡</div>
+<div align="center">c+h plss (´◡`) dni proship</div>
 ㅤㅤ
 <div align="center">୨୧</div>
 ㅤㅤ
@@ -13,11 +14,6 @@
   <img src="https://i.postimg.cc/G2KdtwW0/tumblr-801a08572c67f2510c1770886aa6ca16-77dba485-400.png" width="300">
 </p>
 
-
-
-<p align="center">
-  <img src="https://i.ibb.co/1JT0c3ty/okkk.gif" width="200">
-</p>
 
 <div align="center">──── ୨୧ ────</div>
 
