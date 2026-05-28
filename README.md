@@ -4,9 +4,9 @@
   <img src="https://i.postimg.cc/MHt267jz/artful-artful-die-of-death.gif">
 </p>
 
-<div align="center">pwu / lizzy</div>
-<div align="center">yumeship w artful, sharing ♡</div>
-<div align="center">c+h plss (´◡`) dni proship</div>
+<div align="center">pwu / liz 🧁</div>
+<div align="center"> ♡</div>
+<div align="center">c+h ok 🎊 proship dni</div>
 ㅤㅤ
 <div align="center">୨୧</div>
 ㅤㅤ
@@ -16,12 +16,6 @@
 
 
 <div align="center">──── ୨୧ ────</div>
-
-<p align="center">
-  <img src="https://i.postimg.cc/SsJ9x7KH/tumblr-6873e74c744bf22974dc0d4875f4c07d-e809ea4e-250.gif" width="100">
-   <img src="https://i.postimg.cc/7LB74QqR/tumblr-89027fe8535d367207b5fd075473baad-fce13872-250.gif" width="100">
-  <img src="https://i.postimg.cc/vm89pdwm/tumblr-8f004f284165dcc33c596a90f55ddcff-3646093f-250.gif" width="100">
-    <img src="https://i.postimg.cc/3RdGxCwV/tumblr-e2edfb8de49531872fae2f3cbabe4074-dd1b31c6-250.gif" width="100">
 
 </p>
 <p align="center">
